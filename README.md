@@ -1,2 +1,3 @@
 # hello-world
 Something new and awesome!
+I have quite an interesting story about myself. I have played sports for most of my life until, I was shattered with a knee issue called, Osgoodslather Disease. This disease breaks down the tissues around the knee and once the cartilage is gone it takes an extraordinarily long time to grow back. Also, I was hit with an ACL and MCL tear in both knees which were never taken care off until my mid 20's. Now I work for Shopify not doing what I love but doing what is necessary to keep my health and sanity where it needs to be to live life the way it is planned out!
